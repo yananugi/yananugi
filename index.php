@@ -1,1 +1,1 @@
-NUGI RONALDO❤😍😒👌
+MAJU MAJU👌
